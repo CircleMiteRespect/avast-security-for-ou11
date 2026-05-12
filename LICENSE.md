@@ -1,4 +1,4 @@
-# 
+# Avast Security for macOS exclusive Utility: network-monitoring & safe-browsing offers the most advanced Avast Security for macOS utility, with network-monitoring and
 
 
 
